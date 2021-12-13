@@ -1,1 +1,1 @@
-# biblioethique
+https://faisalbazid.github.io/biblioethique/
